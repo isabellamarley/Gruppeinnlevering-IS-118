@@ -23,9 +23,7 @@ Regelmessige statusmøter kan også bidra til å styrke samhold og videre øke e
 
 
 
-
-
-# Egenevaluering av gruppekontrakt/samarbeid: 
+## Egenevaluering av gruppekontrakt/samarbeid: 
 
 Det ble etablert tidspunkter på de dagene som gruppen skulle møtte opp. Vi har hatt god kommunikasjon mellom oss. Og bruker aktivt kommunikasjons kanalene vi har blitt enige om. Hvis noen ikke kan møte opp til avtalt tid er vi alle gode til å kommunisere dette. Da jobber vedkommende ofte hjemme med tildelt oppgave eller fortsetter på noe vi som gruppe jobber med. Vi har også etablert forståelse med tanke på hvor all kommunikasjon skal formidles, som er Discord. Hver gang vi har møtt opp, så har vi gått gjennom oppgaven sammen, delt opp oppgaven mellom gruppe medlemmene, og hjulpet hverandre gjennom prosessen med å gjennomføre oppgaven. Vi ser på hverandres individuelle arbeid og gir hverandre tilbakemeldinger. Hvis det er en i gruppen som ikke forstår helt hva som skal gjøres eller hva oppgaven innebærer, så tar vi oss tid til å se på dette for å danne en god og felles forståelse på hva oppgaven spør etter og innhold vi ønsker å produsere, hva som skal gjøres, og hvordan vi skal gjennomføre oppgaven. 
 
